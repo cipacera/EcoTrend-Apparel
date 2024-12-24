@@ -1,0 +1,1 @@
+EcoTrend Apparel redefines fashion with eco-friendly and sustainable clothing. We use recycled materials and ethical production practices to deliver stylish, comfortable, and environmentally conscious apparel. Join us in building a greener future through sustainable fashion choices.
